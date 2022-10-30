@@ -33,7 +33,7 @@ I love story, because it can eliminate all the nonsenses happening in our life a
 
 ### Chapter 2: Idol! Sound of echo
 
-<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=28191836&amp;auto=1&amp;height=100"></iframe>  
+<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=21038512&amp;auto=1&amp;height=100"></iframe>  
 <br>
 
 <iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=22677309&amp;auto=1&amp;height=100"></iframe>  
@@ -45,6 +45,18 @@ I love story, because it can eliminate all the nonsenses happening in our life a
 <iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=1439094767&amp;auto=1&amp;height=100"></iframe>  
 <br>
 
-The first time I heard about Luka (a singer in Vocaloid), I confused it with Luca, the Last Universal Common Ancestor. Because of that small mistake, I started to be interested in Luka, and finally became her fan. 
+I used to believe that the best writer or music composer should be hided behind their masterpeices until they were buried and forgotten. That's true in some cases, but what I gradually learnt is that we can never deny that there are such a category of musics: People choose to memorize them, not only because themselves, but also because of the soul who created that. Thus, in this chapter, I selected some very personalized compositions here. While in the first chapter, parlour music dominated, here we would meet with different types of musics. Wish you would like them.
 
-### Chapter 3: 
+### Chapter 3: Just Listen. Story is inside
+
+<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=1439094767&amp;auto=1&amp;height=100"></iframe>  
+<br>
+
+<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=1439094767&amp;auto=1&amp;height=100"></iframe>  
+<br>
+
+<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=1439094767&amp;auto=1&amp;height=100"></iframe>  
+<br>
+
+<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=1439094767&amp;auto=1&amp;height=100"></iframe>  
+<br>
