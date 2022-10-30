@@ -31,4 +31,20 @@ Rabbit hole is where Alice entered the wonderland, and it is also the name of th
 
 I love story, because it can eliminate all the nonsenses happening in our life and just left the compressed version. Thus, in this chapter, I picked songs that have their own story. I will not enumerate the stories here, partially becasue I'm lazy and partially because I want to leave them as a hook (For luring you!). And in next chapter, we will go to another level of the story: the story about story writers.
 
-### Chapter 2: 
+### Chapter 2: Idol! Sound of echo
+
+<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=28191836&amp;auto=1&amp;height=100"></iframe>  
+<br>
+
+<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=22677309&amp;auto=1&amp;height=100"></iframe>  
+<br>
+
+<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=19098254&amp;auto=1&amp;height=100"></iframe>  
+<br>
+
+<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=1439094767&amp;auto=1&amp;height=100"></iframe>  
+<br>
+
+The first time I heard about Luka (a singer in Vocaloid), I confused it with Luca, the Last Universal Common Ancestor. Because of that small mistake, I started to be interested in Luka, and finally became her fan. 
+
+### Chapter 3: 
