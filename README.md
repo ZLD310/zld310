@@ -99,12 +99,17 @@ After all of the songs here, we are approaching the end of our journey. Just lik
 <iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=683826&amp;auto=1&amp;height=100"></iframe>  
 <br>
 
-That is the final chapter in our journey! Although its a winter birthday, I wish we can have one more celebration in late Spring next year. The word "hope" is such a luxury these days, but I still want to thank god for giving that to us.<br>
-Wish in your life, the water would never froze.<br>
-Wish in your life, sun and moon would always company with you.<br>
-Wish in your life, desperation would be only in the past, and love would be given to you.<br>
-And one more selfish blessing: Wish in your life, I will be there with you.<br>
-Happy birthday. My little naughty girl.<br>
+That is the final chapter in our journey! Although its a winter birthday, I wish we can have one more celebration in late Spring next year. The word "hope" is such a luxury these days, but I still want to thank god for giving that to us.
+
+Wish in your life, the water would never froze.
+
+Wish in your life, sun and moon would always company with you.
+
+Wish in your life, desperation would be only in the past, and love would be given to you.
+
+And one more selfish blessing: Wish in your life, I will be there with you.
+
+Happy birthday. My little naughty girl. May your day be blessed.
 
 *Light*<br>
 *Forever*
