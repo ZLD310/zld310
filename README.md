@@ -109,7 +109,9 @@ Wish in your life, desperation would be only in the past, and love would be give
 
 And one more selfish blessing: Wish in your life, I will be there with you.
 
-Happy birthday. My little naughty girl. May your day be blessed.
+Happy birthday. My little girl. 
+
+May your day be blessed.
 
 *Light*<br>
 *Forever*
