@@ -18,7 +18,7 @@ The opening number in *Notre Dame de Paris*, the first musical I watched (on my 
 <iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=4937357&amp;auto=1&amp;height=100"></iframe>  
 <br>
 
-<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=448065&amp;auto=1&amp;height=100"></iframe>  
+<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=4966657&amp;auto=1&amp;height=100"></iframe>  
 <br>
 
 <iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=22707008&amp;auto=1&amp;height=100"></iframe>  
@@ -33,10 +33,10 @@ I love stories because they can eliminate all the nonsense happening in our life
 
 ### Chapter 2: Idol! Sound of echo
 
-<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=4966657&amp;auto=1&amp;height=100"></iframe>  
+<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=22677309&amp;auto=1&amp;height=100"></iframe>  
 <br>
 
-<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=19098254&amp;auto=1&amp;height=100"></iframe>  
+<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=26830207&amp;auto=1&amp;height=100"></iframe>  
 <br>
 
 <iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width="100%" height="100" src="https://music.163.com/outchain/player?type=2&amp;id=1439094767&amp;auto=1&amp;height=100"></iframe>  
